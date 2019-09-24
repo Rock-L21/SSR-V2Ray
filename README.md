@@ -5,8 +5,8 @@
 
 
 
-http://invite.sswow.top/register?aff=51071
+http://invite.sswow.top/register?aff=52495
                                           
 —————————————————————————————————————————— 
                                           
-http://www.vwall.ga/auth/register?code=ENzL
+http://www.vwall.gq/auth/register?code=3RCL
