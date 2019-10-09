@@ -5,8 +5,8 @@
 
 
 
-http://invite.sswow.top/register?aff=52495
+https://www.updayday.xyz/register?aff=52495
                                           
 —————————————————————————————————————————— 
                                           
-http://www.vwall.gq/auth/register?code=3RCL
+https://www.ssrok.xyz/auth/register?code=3RCL
