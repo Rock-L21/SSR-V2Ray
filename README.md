@@ -13,7 +13,7 @@ https://www.ssrok.xyz/auth/register?code=3RCL   0.1RMB/7天    推广返利每�
                                           
 —————————————————————————————————————————— 
 
-https://xn--m80a.xyz/auth/register?code=FEG5   首次开通VIP1包月只需0.28元 		 次月1.28元/月/VIP1		  2.33元/月/VIP2  
+=https://xn--m80a.xyz/auth/register?code=FEG5   首次开通VIP1包月只需0.28元 		 次月1.28元/月/VIP1		  2.33元/月/VIP2  
 
 
 ——————————————————————————————————————————   
