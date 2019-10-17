@@ -32,7 +32,7 @@ https://x-ssr.co/register?aff=27206
 
 ——————————————————————————————————————————   
 
-http://ohssr.shop/auth/register?code=V4Ch
+http://ohssr.eu/auth/register?code=V4Ch
 
 
 ——————————————————————————————————————————   
