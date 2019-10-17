@@ -28,7 +28,7 @@ https://user.bitlink-cloud.com/register?aff=234
 
 ——————————————————————————————————————————   
 
-https://www.1080.cloud/register?aff=27206
+https://x-ssr.co/register?aff=27206
 
 ——————————————————————————————————————————   
 
