@@ -5,11 +5,11 @@
 
 
 
-https://edu.daydayupedu.xyz/register?aff=52495   0.1RMB/7天    推广返利每次4元 
+https://edu.upday.xyz/register?aff=52495   0.1RMB/7天    推广返利每次4元 
                                           
 —————————————————————————————————————————— 
 
-https://share.cfssr.top/auth/register?code=3RCL   0.1RMB/7天    推广返利每次5元 
+https://new.ssrcf.top/auth/register?code=3RCL  0.1RMB/7天    推广返利每次5元 
                                           
 —————————————————————————————————————————— 
 
