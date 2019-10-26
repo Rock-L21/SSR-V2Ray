@@ -5,7 +5,7 @@
 
 
 
-https://edu.upday.xyz/register?aff=52495   0.1RMB/7天    推广返利每次4元 
+https://edu.upday.xyz/register?aff=51071   0.1RMB/7天    推广返利每次4元 
                                           
 —————————————————————————————————————————— 
 
