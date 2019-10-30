@@ -19,7 +19,7 @@ https://new.ssrcf.top/auth/register?code=3RCL  0.1RMB/7天    推广返利每次
                                           
 —————————————————————————————————————————— 
 
-##  https://xn--m80a.xyz/auth/register?code=yfln   首次开通VIP1包月只需0.28元 	
+##  https://xn--m80a.xyz/auth/register?code=6Syj  首次开通VIP1包月只需0.28元 	
    次月:<br>
    1.28元/月/VIP1		<br>
    2.33元/月/VIP2  <br>
