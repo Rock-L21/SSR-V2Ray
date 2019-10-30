@@ -6,8 +6,12 @@
 
 
 https://www.updayday.xyz/register?aff=51071&code=2744B0AAF3A8<br/>
-https://www.updayday.xyz/register?aff=51071&code=E6E9E97455BF
-https://www.updayday.xyz/register?aff=51071&code=F7F931D81A260.1RMB/7天    推广返利每次4元 
+https://www.updayday.xyz/register?aff=51071&code=E6E9E97455BF<br/>
+https://www.updayday.xyz/register?aff=51071&code=F7F931D81A26<br/>
+https://www.updayday.xyz/register?aff=51071&code=D853B5C47A99<br/>
+https://www.updayday.xyz/register?aff=51071&code=233C55A569BB<br/>
+https://www.updayday.xyz/register?aff=51071&code=7ECF713ADDB3<br/>
+https://www.updayday.xyz/register?aff=51071&code=574C1C635FBA<br/>  0.1RMB/7天    推广返利每次4元 
                                           
 —————————————————————————————————————————— 
 
