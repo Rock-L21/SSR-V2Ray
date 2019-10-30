@@ -15,7 +15,7 @@ https://www.updayday.xyz/register?aff=51071&code=574C1C635FBA<br/>  0.1RMB/7天 
                                           
 —————————————————————————————————————————— 
 
-https://new.ssrcf.top/auth/register?code=3RCL  0.1RMB/7天    推广返利每次5元 
+https://new.ssrcf.top/auth/register?code=3RCL   0.1RMB/7天    推广返利每次5元 
                                           
 —————————————————————————————————————————— 
 
