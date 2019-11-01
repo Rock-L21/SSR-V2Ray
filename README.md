@@ -4,7 +4,7 @@
 ——————————————————————————————————————————   
 
 
-
+https://stu.upday.xyz/register?aff=51071
 https://www.updayday.xyz/register?aff=51071&code=2744B0AAF3A8<br/>
 https://www.updayday.xyz/register?aff=51071&code=E6E9E97455BF<br/>
 https://www.updayday.xyz/register?aff=51071&code=F7F931D81A26<br/>
