@@ -4,15 +4,15 @@
 ——————————————————————————————————————————   
 
 
-https://stu.upday.xyz/register?aff=51071   0.1RMB/7天    推广返利每次4元 
+https://xue.upday.xyz/register?aff=52495   0.1RMB/7天    推广返利每次4元 
                                           
 —————————————————————————————————————————— 
 
-https://new.ssrcf.top/auth/register?code=3RCL   0.1RMB/7天    推广返利每次5元 
+https://me.ssrcf.top/auth/register?code=3RCL  0.1RMB/7天    推广返利每次5元 
                                           
 —————————————————————————————————————————— 
 
-##  https://xn--m80a.xyz/auth/register?code=6Syj  首次开通VIP1包月只需0.28元 	
+##  https://xn--m80a.wiki/auth/register?code=6Syj 首次开通VIP1包月只需0.28元 	
    次月:<br>
    1.28元/月/VIP1		<br>
    2.33元/月/VIP2  <br>
