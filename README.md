@@ -20,11 +20,11 @@ https://me.ssrcf.top/auth/register?code=3RCL  0.1RMB/7天    推广返利每次5
 
 ——————————————————————————————————————————   
 
-http://ohssr.eu/auth/register?code=V4Ch
+http://300cloud.xyz/auth/register?code=V4Ch
 
 ——————————————————————————————————————————   
 
-https://user.bitlink-cloud.com/register?aff=234
+https://user.bitlink-cloud.com/register?aff=314
 
 ——————————————————————————————————————————   
 
@@ -35,11 +35,11 @@ https://x-ssr.co/register?aff=27206
 
 ——————————————————————————————————————————   
 
-https://孤岛养鸡场.com/auth/register?code=9Fo1
+https://yjcssr.xyz/auth/register?code=9Fo1
 
 
 ——————————————————————————————————————————   
 
-https://yiyo.cloud/auth/register?code=Xkm1
+https://yiyo.io/auth/register?code=Xkm1
 
 
