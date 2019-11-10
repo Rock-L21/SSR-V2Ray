@@ -20,7 +20,6 @@ https://me.ssrcf.top/auth/register?code=3RCL  0.1RMB/7天    推广返利每次5
 
 ——————————————————————————————————————————   
 
-http://300cloud.xyz/auth/register?code=V4Ch
 
 ——————————————————————————————————————————   
 
