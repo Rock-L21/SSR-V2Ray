@@ -3,11 +3,11 @@
 
 ——————————————————————————————————————————   
 
-https://edu.lovess.top/register?aff=52495      0.1RMB/7天    推广返利每次4元 
+https://edu.lovessr.top/register?aff=51071     0.1RMB/7天    推广返利每次4元 
                                           
 —————————————————————————————————————————— 
 
-https://me.ssrcf.top/auth/register?code=3RCL  0.1RMB/7天    推广返利每次5元 
+https://hi.ssrcf.top/auth/register?code=3RCL  0.1RMB/7天    推广返利每次5元 
                                           
 —————————————————————————————————————————— 
 
