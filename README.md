@@ -2,8 +2,7 @@
 白嫖SSR站点分享
 
 ——————————————————————————————————————————   
-
-https://edu.lovessr.top/register?aff=51071    
+https://edu.lovess.top/register?aff=51071
                                           
 —————————————————————————————————————————— 
 
