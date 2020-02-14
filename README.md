@@ -29,7 +29,7 @@ https://hi.ssrcf.top/auth/register?code=ENzL
 https://x-ssr.co/register?aff=27206
 
 ——————————————————————————————————————————   
-https://yjc-f.xyz/auth/register?code=5wby
+https://ji-rss-aa.pw/link/Ns9B9OMqjSa1OzE4
 
 
 
