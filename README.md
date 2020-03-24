@@ -9,4 +9,4 @@ https://edu.lovess.top/register?aff=51071
 
 
 
-https://hi.ssrcf.top/auth/register?code=GMmc
+https://2020.cfssr.xyz/auth/register?code=GMmc
