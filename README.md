@@ -4,7 +4,7 @@
 
 ——————————————————————————————————————————  
 
-https://2020.cfssr.xyz/auth/register?code=GMmc
+https://a.cnplus.xyz/auth/register?code=GMmc
                                         
 —————————————————————————————————————————— 
 
@@ -12,3 +12,4 @@ https://2020.cfssr.xyz/auth/register?code=GMmc
 https://vip.600mbps.xyz/register?aff=51071
 </br>
 https://starscloud.cc/auth/register?code=NeeU
+</br></br></br>https://ottof.xyz/auth/register?code=wCa9</br></br>https://xsyq.wangzicloud.com/
