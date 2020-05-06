@@ -12,4 +12,4 @@ https://a.cnplus.xyz/auth/register?code=GMmc
 https://vip.600mbps.xyz/register?aff=51071
 </br>
 https://starscloud.cc/auth/register?code=NeeU
-</br></br></br>https://ottof.xyz/auth/register?code=wCa9</br></br>https://xsyq.wangzicloud.com/  
+</br></br></br>https://ottof.xyz/auth/register?code=wCa9</br></br></br>https://suying666.net/auth/register?code=dF7y</br></br></br>https://xsyq.wangzicloud.com/  
