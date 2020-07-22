@@ -43,11 +43,13 @@ https://airplane.bbapk.net/auth/register?code=HhHQ
 —————————————————————————————————————————— 
 </br>
 </br>
-https://airplane.hdske.top/auth/register?code=NTEr
+https://fastlink.ws/auth/register?code=mTKZ
 </br>
 —————————————————————————————————————————— 
 </br>
 </br>
+
+https://airplane.hdske.top/auth/register?code=NTEr
 </br>
 —————————————————————————————————————————— 
 </br>
