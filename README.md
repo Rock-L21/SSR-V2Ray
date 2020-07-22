@@ -38,10 +38,12 @@ https://www.lee2cloud.com/auth/register?code=d4qw
 —————————————————————————————————————————— 
 </br>
 </br>
+https://airplane.bbapk.net/auth/register?code=HhHQ
 </br>
 —————————————————————————————————————————— 
 </br>
 </br>
+https://airplane.hdske.top/auth/register?code=NTEr
 </br>
 —————————————————————————————————————————— 
 </br>
