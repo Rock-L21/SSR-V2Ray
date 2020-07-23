@@ -13,7 +13,7 @@ https://starscloud.cf/auth/register?code=0OJW
 —————————————————————————————————————————— 
 </br> 
 </br>
-https://vip.600mbps.xyz/register?aff=51071
+https://fastlink.ws/auth/register?code=mTKZ
 </br>
 —————————————————————————————————————————— 
 </br>
@@ -43,12 +43,11 @@ https://airplane.bbapk.net/auth/register?code=HhHQ
 —————————————————————————————————————————— 
 </br>
 </br>
-https://fastlink.ws/auth/register?code=mTKZ
+https://vip.600mbps.xyz/register?aff=51071
 </br>
 —————————————————————————————————————————— 
 </br>
 </br>
-
 https://airplane.hdske.top/auth/register?code=NTEr
 </br>
 —————————————————————————————————————————— 
