@@ -52,16 +52,6 @@ https://airplane.hdske.top/auth/register?code=NTEr
 </br>
 —————————————————————————————————————————— 
 </br>
-</br>
-https://www.kuailimao.cloud/register?aff=22504
-</br>
-—————————————————————————————————————————— 
-</br>
-</br>
-https://paoluz.cloud/auth/register?code=GdvD
-</br>
-—————————————————————————————————————————— 
-</br>
 </br></br>
 —————————————————————————————————————————— 
 </br>
