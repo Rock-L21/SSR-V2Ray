@@ -8,7 +8,7 @@ https://v2.freeok.xyz/auth/register?code=GMmc
                                         
 —————————————————————————————————————————— </br>
 
-https://starscloud.cf/auth/register?code=0OJW
+https://starscloud.cf/auth/register?code=NeeU
 </br> 
 —————————————————————————————————————————— 
 </br> 
