@@ -8,7 +8,7 @@ https://v2.freeok.xyz/auth/register?code=GMmc
                                         
 —————————————————————————————————————————— </br>
 
-https://starscloud.cf/auth/register?code=NeeU
+https://starscloud.tk/auth/register?code=NeeU
 </br> 
 —————————————————————————————————————————— 
 </br> 
@@ -18,25 +18,7 @@ https://fastlink.ws/auth/register?code=mTKZ
 —————————————————————————————————————————— 
 </br>
 </br>
-https://suying999.net/auth/register?code=dF7y
-</br>
-—————————————————————————————————————————— 
-</br>
-</br>
-https://crossx.xyz/auth/register?code=HhHQ
-</br>
-—————————————————————————————————————————— 
-</br>
-</br>
-https://v2pro.cc//auth/register?code=oaKh
-</br>
-—————————————————————————————————————————— 
-</br>
-</br>
-https://www.lee2cloud.com/auth/register?code=d4qw
-</br>
-—————————————————————————————————————————— 
-</br>
+https://suying555.net/auth/register?code=dF7y
 </br>
 —————————————————————————————————————————— 
 </br>
@@ -46,22 +28,4 @@ https://vip.600mbps.xyz/register?aff=51071
 —————————————————————————————————————————— 
 </br>
 </br>
-</br>
-—————————————————————————————————————————— 
-</br>
-</br></br>
-—————————————————————————————————————————— 
-</br>
-</br></br>
-—————————————————————————————————————————— 
-</br>
-</br></br>
-—————————————————————————————————————————— 
-</br>
-</br></br>
-—————————————————————————————————————————— 
-</br>
-</br></br>
-—————————————————————————————————————————— 
-</br>
-</br>
+https://suying555.net/auth/register?code=dF7y
