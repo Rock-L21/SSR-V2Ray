@@ -14,9 +14,14 @@ https://starscloud.tk/auth/register?code=NeeU
 </br> 
 </br>
 https://fastlink.ws/auth/register?code=mTKZ
+—————————————————————————————————————————— 
+</br>
+</br>
+https://jdycloud.xyz/auth/register?code=mhOL
 </br>
 —————————————————————————————————————————— 
 </br>
+
 </br>
 https://suying555.net/auth/register?code=dF7y
 </br>
@@ -29,3 +34,5 @@ https://vip.600mbps.xyz/register?aff=51071
 </br>
 </br>
 https://suying555.net/auth/register?code=dF7y
+</br>
+
