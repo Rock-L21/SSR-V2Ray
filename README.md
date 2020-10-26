@@ -4,7 +4,7 @@
 
 ——————————————————————————————————————————  
 
-https://v2.freeok.xyz/auth/register?code=GMmc
+https://suying555.net/auth/register?code=dF7y
                                         
 —————————————————————————————————————————— </br>
 
@@ -23,7 +23,8 @@ https://jdycloud.xyz/auth/register?code=mhOL
 </br>
 
 </br>
-https://suying555.net/auth/register?code=dF7y
+https://v2.freeok.xyz/auth/register?code=GMmc
+
 </br>
 —————————————————————————————————————————— 
 </br>
