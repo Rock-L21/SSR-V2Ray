@@ -4,7 +4,7 @@
 
 ——————————————————————————————————————————  
 
-https://suying555.net/auth/register?code=dF7y
+https://jike0.com/auth/register?code=DOYt
                                         
 —————————————————————————————————————————— </br>
 
@@ -34,6 +34,6 @@ https://vip.600mbps.xyz/register?aff=51071
 —————————————————————————————————————————— 
 </br>
 </br>
-https://suying555.net/auth/register?code=dF7y
+https://jike0.com/auth/register?code=DOYt
 </br>
 
