@@ -4,11 +4,11 @@
 
 ——————————————————————————————————————————  
 
-https://jike0.com/auth/register?code=DOYt
+https://starscloud.tk/auth/register?code=NeeU
                                         
 —————————————————————————————————————————— </br>
 
-https://starscloud.tk/auth/register?code=NeeU
+https://jike0.com/auth/register?code=DOYt
 </br> 
 —————————————————————————————————————————— 
 </br> 
