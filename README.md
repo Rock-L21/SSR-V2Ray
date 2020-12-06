@@ -29,7 +29,7 @@ https://v2.freeok.xyz/auth/register?code=GMmc
 —————————————————————————————————————————— 
 </br>
 </br>
-https://vip.600mbps.xyz/register?aff=51071
+https://n.azurestu.xyz/register?aff=51071
 </br>
 —————————————————————————————————————————— 
 </br>
