@@ -4,7 +4,7 @@
 
 ——————————————————————————————————————————  
 
-https://starscloud.tk/auth/register?code=NeeU
+https://starscloud.tk//auth/register?code=8uTc
                                         
 —————————————————————————————————————————— </br>
 
