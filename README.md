@@ -3,12 +3,12 @@
 
 
 ——————————————————————————————————————————  
+https://jike0.com/auth/register?code=DOYt
 
-https://starscloud.tk//auth/register?code=8uTc
                                         
 —————————————————————————————————————————— </br>
 
-https://jike0.com/auth/register?code=DOYt
+https://starscloud.tk//auth/register?code=8uTc
 </br> 
 —————————————————————————————————————————— 
 </br> 
