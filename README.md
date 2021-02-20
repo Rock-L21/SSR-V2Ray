@@ -44,9 +44,3 @@ https://j01.space/waf/HDU12
 </br>
 —————————————————————————————————————————— 
 
-</br>
-</br>
-https://ccav691.com?code=M2B4E&channel=share
-
-</br>
-
