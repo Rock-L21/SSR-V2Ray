@@ -8,7 +8,7 @@ https://jike0.com/auth/register?code=DOYt
                                         
 —————————————————————————————————————————— </br>
 
-https://starscloud.tk//auth/register?code=8uTc
+https://j01.space/waf/HDU12
 </br> 
 —————————————————————————————————————————— 
 </br> 
@@ -40,7 +40,7 @@ https://jike0.com/auth/register?code=DOYt
 —————————————————————————————————————————— 
 </br>
 </br>
-https://j01.space/waf/HDU12
+https://starscloud.tk//auth/register?code=8uTc
 </br>
 —————————————————————————————————————————— 
 
