@@ -17,7 +17,7 @@ https://fastlink.ws/auth/register?code=A1vi
 —————————————————————————————————————————— 
 </br>
 </br>
-https://jdycloud.xyz/auth/register?code=mhOL
+https://starscloud.tk//auth/register?code=8uTc
 </br>
 —————————————————————————————————————————— 
 </br>
@@ -40,7 +40,7 @@ https://jike0.com/auth/register?code=DOYt
 —————————————————————————————————————————— 
 </br>
 </br>
-https://starscloud.tk//auth/register?code=8uTc
+https://jdycloud.xyz/auth/register?code=mhOL
 </br>
 —————————————————————————————————————————— 
 
