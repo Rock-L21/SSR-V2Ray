@@ -23,13 +23,13 @@ https://starscloud.tk//auth/register?code=8uTc
 </br>
 
 </br>
-https://v2.freeok.xyz/auth/register?code=GMmc
+https://v2.freeyes.xyz/auth/register?code=GMmc
 
 </br>
 —————————————————————————————————————————— 
 </br>
 </br>
-https://n.azurestu.xyz/register?aff=142881
+https://2ups.xyz/register?aff=51071
 </br>
 —————————————————————————————————————————— 
 </br>
