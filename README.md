@@ -17,7 +17,7 @@ https://fastlink.ws/auth/register?code=A1vi
 —————————————————————————————————————————— 
 </br>
 </br>
-https://starscloud.tk//auth/register?code=8uTc
+https://starscloud.ml/auth/register?code=8uTc
 </br>
 —————————————————————————————————————————— 
 </br>
