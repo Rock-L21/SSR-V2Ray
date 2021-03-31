@@ -3,7 +3,7 @@
 
 
 ——————————————————————————————————————————  
-https://jike0.com/auth/register?code=DOYt
+https://jike138.net/auth/register?code=DOYt
 
                                         
 —————————————————————————————————————————— </br>
@@ -13,7 +13,6 @@ https://j01.space/waf/HDU12
 —————————————————————————————————————————— 
 </br> 
 </br>
-https://fastlink.ws/auth/register?code=A1vi
 —————————————————————————————————————————— 
 </br>
 </br>
@@ -40,6 +39,7 @@ https://jike0.com/auth/register?code=DOYt
 —————————————————————————————————————————— 
 </br>
 </br>
+
 https://jdycloud.xyz/auth/register?code=mhOL
 </br>
 —————————————————————————————————————————— 
