@@ -8,7 +8,7 @@ https://jike138.net/auth/register?code=DOYt
                                         
 —————————————————————————————————————————— </br>
 
-https://j01.space/waf/HDU12
+https://j01.space/waf/HDU11
 </br> 
 —————————————————————————————————————————— 
 </br> 
@@ -21,9 +21,7 @@ https://starscloud.ml/auth/register?code=8uTc
 —————————————————————————————————————————— 
 </br>
 
-</br>
-https://v2.freeyes.xyz/auth/register?code=GMmc
-
+</br>https://okme.xyz/auth/register?code=GMmc
 </br>
 —————————————————————————————————————————— 
 </br>
@@ -33,7 +31,8 @@ https://2ups.xyz/register?aff=51071
 —————————————————————————————————————————— 
 </br>
 </br>
-https://jike0.com/auth/register?code=DOYt
+https://jike138.net/auth/register?code=DOYt
+7
 </br>
 
 —————————————————————————————————————————— 
