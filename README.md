@@ -21,7 +21,7 @@ https://j01.space/waf/HDU11
 —————————————————————————————————————————— 
 </br>
 </br>
-https://starscloud.ml/#/auth/register?code=8uTc
+https://starscloud.ml/auth/register?code=8uTc
 </br>
 —————————————————————————————————————————— 
 </br>
