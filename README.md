@@ -2,7 +2,8 @@
 白嫖SSR站点分享
 
 
-——————————————————————————————————————————  
+—————————————————————————————————————————— 
+
 https://jike138.net/auth/register?code=DOYt
 </br>
 ——————————————————————————————————————————
@@ -12,8 +13,7 @@ https://jike138.net/auth/register?code=DOYt
 https://suying222.net/auth/register?code=dF7y
                                         
 —————————————————————————————————————————— </br>
-
-https://j01.space/waf/HDU11
+https://j02.space/waf/HDU12
 </br> 
 —————————————————————————————————————————— 
 </br> 
