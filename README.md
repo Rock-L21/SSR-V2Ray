@@ -4,13 +4,13 @@
 
 —————————————————————————————————————————— 
 
-https://jike138.net/auth/register?code=DOYt
+https://suying222.net/auth/register?code=dF7y
 </br>
 ——————————————————————————————————————————
 </br>
 </br>
 
-https://suying222.net/auth/register?code=dF7y
+https://jike138.net/auth/register?code=DOYt
                                         
 —————————————————————————————————————————— </br>
 https://j02.space/waf/HDU12
