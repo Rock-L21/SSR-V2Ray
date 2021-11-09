@@ -10,10 +10,10 @@ https://suying222.net/auth/register?code=dF7y
 </br>
 </br>
 
-https://jike138.net/auth/register?code=DOYt
+https://jike.ph/auth/register?code=DOYt
                                         
 —————————————————————————————————————————— </br>
-https://j02.space/waf/HDU12
+https://b.luxury/waf/HDU12
 </br> 
 —————————————————————————————————————————— 
 </br> 
@@ -21,7 +21,7 @@ https://j02.space/waf/HDU12
 —————————————————————————————————————————— 
 </br>
 </br>
-https://starscloud.ml/auth/register?code=8uTc
+https://starscloud.live/auth/register?code=8uTc
 </br>
 —————————————————————————————————————————— 
 </br>
@@ -36,7 +36,7 @@ https://2ups.xyz/register?aff=51071
 —————————————————————————————————————————— 
 </br>
 </br>
-https://jike138.net/auth/register?code=DOYt
+https://jike.ph/auth/register?code=DOYt
 7
 </br>
 
@@ -44,7 +44,7 @@ https://jike138.net/auth/register?code=DOYt
 </br>
 </br>
 
-https://jdycloud.xyz/auth/register?code=mhOL
+https://feisucloud.com/auth/register?code=FjjO
 </br>
 —————————————————————————————————————————— 
 
