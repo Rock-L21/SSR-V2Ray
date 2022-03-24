@@ -4,7 +4,7 @@
 
 —————————————————————————————————————————— 
 
-https://suying222.net/auth/register?code=dF7y
+https://suying00.com/auth/register?code=dF7y
 </br>
 ——————————————————————————————————————————
 </br>
@@ -36,8 +36,8 @@ https://2ups.xyz/register?aff=51071
 —————————————————————————————————————————— 
 </br>
 </br>
-https://jike.ph/auth/register?code=DOYt
-7
+https://suying00.com/auth/register?code=dF7y
+
 </br>
 
 —————————————————————————————————————————— 
