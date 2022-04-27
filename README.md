@@ -9,7 +9,6 @@ https://suying00.com/auth/register?code=dF7y
 ——————————————————————————————————————————
 </br>
 </br>
-
 https://jike.ph/auth/register?code=DOYt
                                         
 —————————————————————————————————————————— </br>
@@ -42,9 +41,6 @@ https://suying00.com/auth/register?code=dF7y
 
 —————————————————————————————————————————— 
 </br>
-</br>
-
-https://feisucloud.com/auth/register?code=FjjO
 </br>
 —————————————————————————————————————————— 
 
