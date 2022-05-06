@@ -25,22 +25,12 @@ https://starscloud.live/auth/register?code=8uTc
 —————————————————————————————————————————— 
 </br>
 
-</br>https://okme.xyz/auth/register?code=GMmc
+</br>https://okgg.xyz/auth/register?code=GMmc
 </br>
 —————————————————————————————————————————— 
 </br>
 </br>
 https://3ups.xyz/register?aff=51071
 </br>
-—————————————————————————————————————————— 
-</br>
-</br>
-https://suying00.com/auth/register?code=dF7y
 
-</br>
-
-—————————————————————————————————————————— 
-</br>
-</br>
-—————————————————————————————————————————— 
 
