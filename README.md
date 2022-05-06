@@ -1,5 +1,5 @@
-# SSR/SSR机场/VMESS/翻墙/小火箭/节点/V2ray/Clash
-白嫖SSR站点分享
+# SSR/SSR机场/VMESS/翻墙/小火箭/节点/V2ray/Clash/
+白嫖V2ray站点分享
 
 
 —————————————————————————————————————————— 
