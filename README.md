@@ -275,7 +275,7 @@
   mso-border-top-alt:solid windowtext 1.5pt;mso-border-left-alt:solid windowtext 1.5pt;
   padding:0cm 5.4pt 0cm 5.4pt;height:78.0pt">
   <p class="MsoNormal" align="center" style="text-align:center"><span lang="EN-US">2</span></p>
-  </td>
+  </td> 
   <td width="66" valign="top" style="width:49.6pt;border-top:none;border-left:none;
   border-bottom:solid windowtext 1.5pt;border-right:solid windowtext 1.5pt;
   mso-border-top-alt:solid windowtext 1.5pt;mso-border-left-alt:solid windowtext 1.5pt;
