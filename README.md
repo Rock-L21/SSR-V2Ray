@@ -11,4 +11,4 @@
 |    奇异    |         https://www.q1travel.cloud/aff.php?aff=5290          |   10RMB    | 1024GB   |  30Day   |   6    |    -    |
 |    3Am     |       https://tt.3amcloud.com/auth/register?code=lfiH        |   15RMB    | 150GB    |  30Day   |   5    | 100Mbps |
 | 彩云俱乐部 |       https://www.xn--nosa.com/auth/register?code=PjeW       |   15RMB    | 100GB    |  30Day   |   2    | 100Mbps |
-| keko.club  | [https://keko.club/#/register?code=73xyhM2X](https://keko.club/%23/register?code=73xyhM2X) |   17RMB    | 115GB    |  30Day   |   ∞    |    ∞    |
+| keko.club  | [https://keko.club/#/register?code=73xyhM2X](https://keko.club/#/register?code=73xyhM2X) |   17RMB    | 115GB    |  30Day   |   ∞    |    ∞    |
