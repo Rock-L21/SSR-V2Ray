@@ -194,7 +194,7 @@
   none;border-bottom:solid windowtext 1.0pt;border-right:solid windowtext 1.0pt;
   padding:0cm 5.4pt 0cm 5.4pt">
   <p class="MsoNormal" align="center" style="text-align:center"><u><span lang="EN-US" style="font-size:6.5pt;font-family:&quot;Segoe UI&quot;,sans-serif;
-  color:blue"><a href="https://cloudnine.ga/%23/register?code=ghP5gDCC">https://cloudnine.ga/#/register?code=ghP5gDCC</a></span></u></p>
+  color:blue"><a href="https://cloudnine.ga/#/register?code=ghP5gDCC">https://cloudnine.ga/#/register?code=ghP5gDCC</a></span></u></p>
   </td>
   <td width="60" valign="top" style="width:45.0pt;border-top:none;border-left:none;
   border-bottom:solid windowtext 1.0pt;border-right:solid windowtext 1.0pt;
