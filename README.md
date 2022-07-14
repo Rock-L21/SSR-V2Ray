@@ -10,3 +10,4 @@
 ##### [https://cloudnine.ga/#/register?code=ghP5gDCC](https://cloudnine.ga/#/register?code=ghP5gDCC)  
 ##### [https://www.q1travel.cloud/aff.php?aff=5290](https://www.q1travel.cloud/aff.php?aff=5290)
 ##### [https://tt.3amcloud.com/auth/register?code=lfiH](https://tt.3amcloud.com/auth/register?code=lfiH)
+##### [https://xn--4gq62f52gdss.com/#/register?code=xOlI1o8S](https://xn--4gq62f52gdss.com/#/register?code=xOlI1o8S)
