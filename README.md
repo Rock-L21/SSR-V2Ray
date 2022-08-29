@@ -6,6 +6,5 @@
 ### [https://3ups.xyz](https://3ups.xyz/register?aff=51071)  
 ### [https://suying00.com](https://suying00.com/auth/register?code=dF7y)  
 ### [https://jike391.com](https://jike391.com/auth/register?code=DOYt)  
-### [https://cloudnine.ga](https://cloudnine.ga/#/register?code=ghP5gDCC)  
 ### [https://www.q1travel.cloud](https://www.q1travel.cloud/aff.php?aff=5290)
 ### [https://tt.3amcloud.com](https://tt.3amcloud.com/auth/register?code=lfiH)
