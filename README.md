@@ -7,4 +7,4 @@
 ### [https://suying2022.com](https://suying2022.com/auth/register?code=dF7y)  
 ### [https://jike291.com](https://jike291.com/auth/register?code=DOYt)  
 ### [https://www.q1travel.cloud](https://www.q1travel.cloud/aff.php?aff=5290)
-### [https://tt.3amcloud.com](https://tt.3amcloud.com/auth/register?code=lfiH)
+### [一元机场.com](https://xn--4gq62f52gdss.com/#/register?code=xOlI1o8S)
