@@ -7,4 +7,3 @@
 ### [https://suying2022.com](https://suying00.com/auth/register?code=dF7y)  需要科学上网才能打开
 ### [https://jike291.com](https://jike391.com/auth/register?code=DOYt)  需要科学上网才能打开
 ### [https://www.q1travel.cloud](https://www.q1travel.cloud/aff.php?aff=5290)需要科学上网才能打开
-### [一元机场.com](https://xn--4gq62f52gdss.com/#/register?code=xOlI1o8S)需要科学上网才能打开
