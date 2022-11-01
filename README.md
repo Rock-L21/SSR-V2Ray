@@ -4,7 +4,7 @@
 
 ### [https://b.luxury](https://103.186.187.63/waf/HDU12) 需要科学上网才能打开
 ### [https://3ups.xyz](https://1ups.top/register?aff=51071)  需要科学上网才能打开
-### [https://suying2022.com](https://suying00.com/auth/register?code=dF7y)  需要科学上网才能打开
+### [https://suying2022.com](https://suying00.com/auth/register?code=dF7y)  需要科学上网才能打开 
 ### [https://jike291.com](https://jike251.xyz/auth/register?code=DOYt)  需要科学上网才能打开
 ### [https://www.q1travel.cloud](https://www.q1travel.cloud/aff.php?aff=5290)需要科学上网才能打开
 ### [https://v01.fl-aff.com](https://v01.fl-aff.com/auth/register?code=A1vi)需要科学上网才能打开
