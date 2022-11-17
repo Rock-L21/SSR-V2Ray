@@ -9,3 +9,4 @@
 ### [https://mojie.cyou](https://mojie.cyou/#/register?code=bwiAOBZQ)需要科学上网才能打开
 ### [https://www.paopao.dog](https://www.paopao.dog/#/register?code=0d4OB2HG)需要科学上网才能打开
 ### [https://keko.club](https://keko.club/#/register?code=73xyhM2X)需要科学上网才能打开
+### [https://www.q1travel.cloud](https://www.q1travel.cloud/aff.php?aff=5290)需要科学上网才能打开
