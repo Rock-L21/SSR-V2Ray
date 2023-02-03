@@ -3,7 +3,7 @@
 ## 梯子 梯子推荐 科学上网 翻墙 加速器 代理 机场  
 
 ### [几鸡](https://103.186.187.63/waf/HDU12) 需要科学上网才能打开
-### [1UPS.TOP](https://1ups.top/register?aff=51071)  需要科学上网才能打开
+### [1UPS.TOP](https://1ups.top/register?aff=156357)  需要科学上网才能打开
 ### [速鹰666](https://suying00.com/auth/register?code=dF7y)  需要科学上网才能打开 
 ### [极客云](https://jike251.xyz/auth/register?code=DOYt)  需要科学上网才能打开
 ### [FASTLINK](https://v01.fl-aff.com/auth/register?code=A1vi)  需要科学上网才能打开
