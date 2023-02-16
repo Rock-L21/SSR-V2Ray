@@ -7,7 +7,7 @@
 ### [速鹰666](https://suying82.com/auth/register?code=dF7y) 
 ### [极客云](https://jike251.xyz/auth/register?code=DOYt) 
 ### [FASTLINK](https://v01.fl-aff.com/auth/register?code=A1vi) 
-### [奇の旅](https://www.q1travel.cloud/aff.php?aff=5290
+### [奇の旅](https://www.q1travel.cloud/aff.php?aff=5290) 
 <!-- ### [https://mojie.cyou](https://mojie.cyou/#/register?code=bwiAOBZQ
 ### [https://www.paopao.dog](https://www.paopao.dog/#/register?code=0d4OB2HG
 ### [https://keko.club](https://keko.club/#/register?code=73xyhM2X
