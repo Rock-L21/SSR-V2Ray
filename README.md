@@ -4,7 +4,7 @@
 
 ### <center> [几鸡](https://103.186.187.63/waf/HDU12)
 ### <center> [速鹰666](https://suying00.com/auth/register?code=dF7y) 
-### <center> [极客云](https://jike998.xyz/auth/register) 
+### <center> [极客云](https://jike251.xyz/auth/register?code=DOYt) 
 ### <center> [FASTLINK](https://v01.fl-aff.com/auth/register?code=A1vi) 
 
 
