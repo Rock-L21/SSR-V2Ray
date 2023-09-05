@@ -4,7 +4,7 @@
 ## 梯子 梯子推荐 科学上网 翻墙 加速器 代理 机场  
 -->
 
-### <center> [几鸡](https://j03.tbcache.us//waf/HDU12) 
+### <center> [几鸡](https://j03.tbcache.us/waf/HDU12) 
 
 ### <center> [速鹰666](https://suying00.com/auth/register?code=dF7y) 
 ### <center> [极客云](https://jikebb.xyz/auth/register?code=DOYt) 
