@@ -3,11 +3,12 @@
 ## 梯子 梯子推荐 电脑PC梯子 国内翻墙梯子 欧美日代理梯子  
 ## 梯子 梯子推荐 科学上网 翻墙 加速器 代理 机场  
 -->
+##以下机场可能需要翻墙打开
 
 ### <center> [几鸡](https://j03.tbcache.us/waf/HDU12) 
 
 ### <center> [速鹰666](https://sy7770.com/auth/register?code=dF7y) 
-### <center> [极客云](https://jk879.xyz/auth/register?code=DOYt) 
+### <center> [极客云](https://jikeq87.xyz/auth/register?code=DOYt) 
  <!--
 ### <center> [1UPS.TOP](https://1ups.top/register?aff=156357)
 ### <center> [FASTLINK](https://v02.fl-aff.com/auth/register?code=A1vi) 
